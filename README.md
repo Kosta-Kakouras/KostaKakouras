@@ -1,2 +1,0 @@
-# KostaKakouras
-Digital Portfolio
